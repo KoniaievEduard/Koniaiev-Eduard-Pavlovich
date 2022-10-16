@@ -1,1 +1,2 @@
-Eduard Koniaiev 519
+Eduard Koniaiev  519
+Galina Proskura Anatolievna 
